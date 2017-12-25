@@ -2,5 +2,4 @@ untitled.html
 0gmff68d1m.html
 kpf251cl0s8.tex
 lnfadgel7e8.html
-figures/Authorea-ece557efe377517cebf4de09907b9dbbc72c870d6dc3257caf8cd89dcda41d0a
 ch4idfte8v.html
